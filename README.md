@@ -15,3 +15,6 @@ https://github.com/user-attachments/assets/7ea3294b-c402-4b90-9f10-d41a81e2c6bd
 
 https://github.com/user-attachments/assets/f497c3fb-3532-4fe3-8876-a797ac785b2a
 
+simular no wokwi online
+
+https://wokwi.com/projects/421732066405025793
